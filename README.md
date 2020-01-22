@@ -1,0 +1,2 @@
+# XD
+lubie zdjecia
